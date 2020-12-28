@@ -13,9 +13,5 @@
 * Prisoners (2013) - [CSFD](https://www.csfd.cz/film/257071-zmizeni/prehled/) 86% - When Keller Dover's daughter and her friend go missing, he takes matters into his own hands as the police pursue multiple leads and the pressure mounts.
     * One of the best thrillers I have ever seen. Must see. 88%
 
-
-* Prisoners (2013) - [CSFD](https://www.csfd.cz/film/257071-zmizeni/prehled/) 86% - When Keller Dover's daughter and her friend go missing, he takes matters into his own hands as the police pursue multiple leads and the pressure mounts.
-    * One of the best thrillers I have ever seen. Must see. 88%
-
 * The Lincoln Lawyer (2011) - [CSFD](https://www.csfd.cz/film/281083-obhajce/prehled/) 81% - A lawyer defending a wealthy man begins to believe his client is guilty of more than just one crime.
     * Another movie from the lawyers environment. I liked the movie as I was not able to figure out what is going to happen. 85%
